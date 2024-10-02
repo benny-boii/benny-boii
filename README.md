@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Benny!
+- I love planes, buses, and Southwest Airlines!
+- I'm new to Github and learning to make new things!
+- You can email me at bennyfliesyt@gmail.com :)
+- I go by He/Him
+- Fun fact about me: I make ROBLOX games a lot!
